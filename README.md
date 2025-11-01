@@ -29,7 +29,7 @@ These three are the most relevant ones in the story:
 ---
 
 ## I would definitely encourage to read this on **WEBTOON**
-[WEBTOON](https://www.webtoons.com/en/action/omniscient-readers-viewpoint/list?title_no=2154).
+[WEBTOON: OMNISCIENT READER'S VIEWPOINT](https://www.webtoons.com/en/action/omniscient-readers-viewpoint/list?title_no=2154).
 
 ---
 
